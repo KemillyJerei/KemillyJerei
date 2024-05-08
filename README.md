@@ -1,4 +1,4 @@
-### Hi there 👋
+Olá, me chamo Kemilly Emanuely Jerei, tenho 16 anos e sou estudante do EEB Raulino Horn, cursando o 2° ano do ensino médio. Atualmente curso Logistica de programação e Desegner gráfico, sendo Logistica pelo Senai e Desegner pelo sEdune cursos. Nesse perfil você pode conferir os frutos do meu trabalho. No meu tempo vago faço diversas coisas entre jogos esportivos, até pintura e apreciação de musicas e series, que não tiram meu foco de um grande futuro prospero, em que almejo ser uma advogada criminal, mas ainda tendo uma visão ampla para outras profissões.
 
 <!--
 **KemillyJerei/KemillyJerei** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
